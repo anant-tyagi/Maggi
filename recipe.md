@@ -1,0 +1,1 @@
+Firstly we take a container in which it is to be prepared . We pour the suitable amounnt of water and add the noodles in it. Then, we stir it for a while and while doing so adding all the spices to give it a much better taste. Lastly, we can add butter and flakes if needed.
